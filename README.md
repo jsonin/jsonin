@@ -1,6 +1,6 @@
 # Juhan Sonin
 
-- 📧 juhan@mit.edu
+- 📧 juhan@mit.edu, juhan@goinvo.com
 - 📱 +1 617.504.3390
 - 📍 Boston, MA
 
